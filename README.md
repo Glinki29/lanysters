@@ -1,4 +1,4 @@
 # lanystersold
 lanyster family
 winter is cumming
-don't play with our fam
+glinki is here for you 
