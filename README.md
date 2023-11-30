@@ -1,4 +1,4 @@
 # lanystersold
 lanyster family
 winter is cumming
-glinki is here for you 
+today was a good day 
